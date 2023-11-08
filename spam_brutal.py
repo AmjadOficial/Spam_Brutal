@@ -1,3 +1,4 @@
+#tot
 #mau record ya
 #encrypt by AmjadOficial
 #YT AmjadOficial
